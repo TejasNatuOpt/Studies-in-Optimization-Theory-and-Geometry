@@ -1,1 +1,0 @@
-# Candidacy-Material
